@@ -1,0 +1,1 @@
+# miniera_sc
